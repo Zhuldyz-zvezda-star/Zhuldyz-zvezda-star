@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Zhuldyz-zvezda-star
-- 👀 I’m interested in archaeology anthropology
+- 👀 I’m interested in anthropology
 - 🌱 I’m currently learning new software, coding program
 - 💞️ I’m looking to collaborate about anthoropology, art, music, fiction and non fiction story
 <!---
